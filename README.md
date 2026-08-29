@@ -16,10 +16,6 @@ Here are some ideas to get you started:
 -->
 🚀 Acerca de mi
 
-Soy una persona divertida 😸
- 
-Me gusta aprender cosas nuevas y superar retos 🔥
-
 Amante de la informatica y la tecnologia 💻
  
 Estudiante de Ingeniería Informatica 🌆
